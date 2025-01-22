@@ -1,6 +1,6 @@
 # Wall Of Retards
 
-Exposing scammers and just a bunch of tards.
+Exposing scammers and just a bunch of tards. I'm tired of people scamming it just like pisses me off. this is short but this is just people i have delt with. if you come in contact with them dont deal with them. but yeah i don't feel like actually updating this shit unless of a scammer.
 --------------------------------------------------
 
 
